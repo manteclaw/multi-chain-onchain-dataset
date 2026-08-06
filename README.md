@@ -57,7 +57,7 @@
 
 The complete multi-chain dataset with 200+ verified real records:
 
-**[Buy on Payhip â†’](https://payhip.com/YOUR_LINK)** â€” $100 (instant download)
+**[Buy on Payhip â†’](https://payhip.com/Manteclaw)** â€” $100 (instant download)
 **[Buy on Ocean Protocol â†’](https://oceanprotocol.com)** â€” OCEAN tokens (crypto-native)
 
 ## Data Provenance
